@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Imz
+- Here learning. Later actually doing stuff :)
